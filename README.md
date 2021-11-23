@@ -1,0 +1,1 @@
+# friutyboy.github.io
